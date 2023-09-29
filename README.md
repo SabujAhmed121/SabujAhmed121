@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **sabujahmed813@gmail.com**
 
-- ⚡ Fun fact **I am funny person.**
+- ⚡ Fun fact **I am a funny person.**
 
 
 
